@@ -1,4 +1,4 @@
-# 🛵 Scooty Rent in Nepali Farm | Affordable & Reliable Rentals  
+# 🛵 Scooty Rent in Nepali Farm Rishikesh | Affordable & Reliable Rentals  
 
 Looking for a **scooty rental service in Nepali Farm**? 🚀 Whether you're a traveler, a student, or a local resident, our hassle-free **Scooty Rent in Nepali Farm** service ensures a smooth ride across Rishikesh and beyond!  
 
